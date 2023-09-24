@@ -4,26 +4,34 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b137090-c1bb-43e6-86db-1a3861f1dd44)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/830631cf-981e-49ab-b415-54a2b772f6bb)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/22a888bc-0989-4396-b9c9-ce602bbaaa6b)
-> 成熟：心态和情绪稳定(有信念，因相信而看见)，性格谦逊和平和，专业靠谱、积极主动，结果闭环...
+> 成熟：心态和情绪稳定(有信念，因相信而看见)，大智若愚，性格谦逊和平和，专业靠谱、积极主动，结果闭环...
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/210f0bc0-d4c5-4283-8ab3-a7f558fe834f)
+> “一个人生命中最大的幸运，莫过于在他的人生中途，即在他年富力强的时候发现了自己的使命”。 ——茨威格，《人类群星闪耀时》
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e264c901-f98b-4213-afd2-702b1e5c67db)
 “The test of a first rate of intelligence is to have two opposed ideas at the same time and still retain the ability to function” 
 One should, for example, be able to see that things are hopeless and yet be determined to make them otherwise.
 > ————[F. Scott Fitzgerald](https://www.zhihu.com/question/22225925)“检验一流智力的标准，就是在头脑中同时存在两种截然相反的想法时仍能保持行动能力”，比方说，一个人应该有分辨有些事物是了无希望的能力，并且能下定决心使其向相反的反向发展。
 
+
+
 ```
-1. 理性沉浸当下，深度全面思考
-2. 第一性原理（本质、根源、价值...）
-3. 沟通协作（事情、关系、利益）
+1. 理性沉浸当下，深度全面思考，仰望星空
+2. 第一性原理（底层逻辑，本质、根源、价值...）
+3. 沟通协作（事情、关系、利益；区分感受与事实）
 4. 拉通达成共识，Why、What和How层面
-5. 有效执行，掌控节奏
+5. 脚踏实地，有效执行，掌控节奏，快就是慢
 6. 落实闭环，创造价值
 7. 复盘沉淀，体系化，人、业务、工具、流程、模板、案例...
-
+8. 化繁为简，少就是多（先复杂再简单）
 ```
 
 
 # Why
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8770ff4c-d97a-4bf6-ba40-1c129a9c97b3)
+> [孩子，我要求你用功读书，不是因为我要你跟别人比成绩，而是因为我希望你将来会拥有选择的权利，选择有意义、有时间的工作，而不是被迫谋生。](https://baijiahao.baidu.com/s?id=1705268912486170318&wfr=spider&for=pc)
 
 1. 生活是海，工作是船；
 2. 经济基础决定上层建筑，先求生存，后求发展；
@@ -36,9 +44,16 @@ One should, for example, be able to see that things are hopeless and yet be dete
 9. 自己就是最好的解决方案；
 10. 表现的根源，在于缺乏安全感及自信；
 11. 自信来自于实战，来自于胜利，来自于结果；
+12. 贫穷和忙碌并不是简单地因为缺少金钱和时间，而是一种心态和能力的匮乏；
+13. 别人希望你赢>你希望赢过别人；
+14. 愚公移山，代际接力；
+15. 增强回路，飞轮效应
 
 
 # What
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/366611df-2e11-472c-a542-a88f2b72f3df)
+> 人间万花筒，丰富多彩
 
 1. 生活品质、基因传承，社会价值；
 2. 实战机会，实务经验，体系思维；多实战，多创造好机会；
@@ -48,13 +63,18 @@ One should, for example, be able to see that things are hopeless and yet be dete
 6. 收入地位等，是由创造的价值决定的；
 7. 一切都会过去，一切都会来到；
 8. 内卷与奋斗：不是行动的努力程度，而是动机的自主程度；
-9. 
+9. 放松的本质：思维模式的切换；
+10. 管中窥豹，井底之蛙；
+11. 利益是决定关系及立场的关键因素之一；
 
 
 # How
 ——生命不息，奋斗不止
 ——信念，心中红旗不倒
-——脑力，心力，精力
+——脑力，心力，精力（血糖、情绪、钟摆式恢复）
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/923fe8fd-7c5a-4d7e-b618-fab17a581620)
+> 唯手熟尔...
 
 1. Why-What-How；
 2. MVP，先做起来，拿出1.0，然后才有2.0；
@@ -66,7 +86,11 @@ One should, for example, be able to see that things are hopeless and yet be dete
 8. 被人利用是件好事；
 9. 化繁为简，金字塔结构思维；
 10. 持续做，少有，正确且有价值的事情，作难事必有所得，日积月累，必有所成；
-11. 刻意练习，创造心流
+11. 刻意练习，创造心流；
+12. 科学（穿戴设备）、常识（概率）
+13. 有话好好说，有事好好做
+14. 知足常乐，感恩长存
+15. 解决问题，输出价值，桃李不言，下自成蹊
 
 # Example
 
@@ -76,6 +100,7 @@ One should, for example, be able to see that things are hopeless and yet be dete
 4. 只关注自己的一亩三分地（如KPI），难道不关注公司和领导的关切点是什么？
 5. 为什么不找我呢？
 6. 痛苦+反思+行动+坚持=成长
+7. 人只需，有且仅要，也只能为自己的选择负责；
 
 # Reference
 
