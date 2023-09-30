@@ -1,5 +1,9 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cf25b0ca-e587-4a8d-9155-579e11887539)
-> 点亮个人/他人的瞬间，是爱和信任，让生活及世界变得更加美好，从小我，到大我，再到忘我，人生的价值在于奉献...
+> 点亮个人/他人的瞬间，是爱和信任，让生活及世界变得更加美好...
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e54730d1-8ff9-4252-8d84-1a2b5b774b83)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b4428e31-20c9-42fc-b8c8-c124578899d1)
+> 从小我，到大我，再到忘我，人生的价值在于奉献...
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b137090-c1bb-43e6-86db-1a3861f1dd44)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/830631cf-981e-49ab-b415-54a2b772f6bb)
