@@ -3,7 +3,6 @@
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b137090-c1bb-43e6-86db-1a3861f1dd44)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/830631cf-981e-49ab-b415-54a2b772f6bb)
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/22a888bc-0989-4396-b9c9-ce602bbaaa6b)
 > 成熟：心态和情绪稳定(有信念，因相信而看见)，大智若愚，性格谦逊和平和，专业靠谱、积极主动，结果闭环...
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/210f0bc0-d4c5-4283-8ab3-a7f558fe834f)
