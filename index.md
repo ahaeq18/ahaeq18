@@ -37,8 +37,18 @@ One should, for example, be able to see that things are hopeless and yet be dete
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9252b873-134c-4cad-b8c4-b025fc5c9ca3)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f39e4150-95fe-4b57-9175-31cf500a741c)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cef34902-5699-4208-9e14-10f3fdc973e7)
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/43c16f06-9609-48e2-ae98-7c32897598c0)
-> It's been difficult to make it in the smartphone world, But it's now going to "[make it possible](https://www.techradar.com/news/phone-and-communications/mobile-phones/huawei-it-s-been-difficult-to-make-it-in-the-smartphone-world-1133410)"2012 年前后，华为手机开启了从运营商白牌定制手机向自有品牌转型，从低端手机到中高端手机转型，从整合供应链到核心零部件自研转型。再到 [2019 年，鸿蒙问世](https://www.ifanr.com/1557562)。从鸿蒙 1.0 仅上线到智慧屏，到鸿蒙 2.0 实现「超级终端」把华为核心设备连接到一起，再到鸿蒙 3.0 实现万物互联，实现了显示器、打印机、墨水屏、手表、座舱、智能眼镜，以及第三方鸿蒙生态设备等全新设备的无限连接可能，覆盖了出行、办公、运动、娱乐和智能家居等等几乎全场景。这个过程亦是水到渠成，系统和硬件的发展相辅相成，也是进展迅速，三代系统完成了从点到线到面的覆盖。到了鸿蒙 4，在完成了硬件层面的全覆盖之后，便是让软硬件的协同，更加统一和顺畅。
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d62a04ce-69ee-456e-80b6-155462803e0c)
+> It's been difficult to make it in the smartphone world, But it's now going to "[make it possible](https://www.techradar.com/news/phone-and-communications/mobile-phones/huawei-it-s-been-difficult-to-make-it-in-the-smartphone-world-1133410)"
+
+```
+2012 年前后，华为手机开启了从运营商白牌定制手机向自有品牌转型，从低端手机到中高端手机转型，从整合供应链到核心零部件自研转型。
+再到 [2019 年，鸿蒙问世](https://www.ifanr.com/1557562)。
+从鸿蒙 1.0 仅上线到智慧屏，
+到鸿蒙 2.0 实现「超级终端」把华为核心设备连接到一起，
+再到鸿蒙 3.0 实现万物互联，实现了显示器、打印机、墨水屏、手表、座舱、智能眼镜，以及第三方鸿蒙生态设备等全新设备的无限连接可能，覆盖了出行、办公、运动、娱乐和智能家居等等几乎全场景。
+这个过程亦是水到渠成，系统和硬件的发展相辅相成，也是进展迅速，三代系统完成了从点到线到面的覆盖。
+到了鸿蒙 4，在完成了硬件层面的全覆盖之后，便是让软硬件的协同，更加统一和顺畅。
+```
 
 # Why
 
