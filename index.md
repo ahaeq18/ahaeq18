@@ -169,3 +169,5 @@ The rest of our lives
 # Reference
 
 1. [李笑来作品集](http://lixiaolai.com/#/)
+2. [ithome](https://www.ithome.com/)
+3. [ifanr](https://www.ifanr.com/)
