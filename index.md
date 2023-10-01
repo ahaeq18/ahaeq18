@@ -81,6 +81,9 @@ The rest of our lives
 不成不休
 ```
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/49a85dfc-f450-4b25-a06b-54c51ce9d368)
+> 通往山顶的路有很多条，我们选择最难、也是最有价值的那一条。
+
 # Why
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8770ff4c-d97a-4bf6-ba40-1c129a9c97b3)
