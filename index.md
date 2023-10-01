@@ -3,7 +3,7 @@
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e54730d1-8ff9-4252-8d84-1a2b5b774b83)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b4428e31-20c9-42fc-b8c8-c124578899d1)
-> 从小我，到大我，再到忘我，人生的价值在于奉献...
+> 从小我，到大我，再到忘我，人生的价值在于奉献...把复杂留给自己，把简单留给用户
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b137090-c1bb-43e6-86db-1a3861f1dd44)
 > 我们的用户到底是谁？我们为用户创造的价值到底是什么？这是两个最基本的问题，也是最重要的问题。因为如果连用户是谁都没有定义清楚，怎么可能超越用户的需求？其实，这个道理每个做产品的人都知道。但在执行过程中，真正能做到的人，却很少。因为我们得跟人性的贪婪作斗争。
@@ -53,6 +53,32 @@ One should, for example, be able to see that things are hopeless and yet be dete
 再到鸿蒙 3.0 实现万物互联，实现了显示器、打印机、墨水屏、手表、座舱、智能眼镜，以及第三方鸿蒙生态设备等全新设备的无限连接可能，覆盖了出行、办公、运动、娱乐和智能家居等等几乎全场景。
 这个过程亦是水到渠成，系统和硬件的发展相辅相成，也是进展迅速，三代系统完成了从点到线到面的覆盖。
 到了鸿蒙 4，在完成了硬件层面的全覆盖之后，便是让软硬件的协同，更加统一和顺畅。
+```
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e10da4ad-12ec-4e13-a73f-43c5f7096c26)
+> 遥遥领先，2015 年，[《Dream It Possible》（中文版《我的梦》）](https://www.ifanr.com/1563360)作为华为 Mate 8 发布会的主题曲流行起来，首发搭载麒麟 950 芯片的年度旗舰 Mate 8，也成为撬动高端手机市场格局的一个支点。
+
+```
+We will glow in the dark turning dust to gold
+在黑暗中发光，化腐朽为神奇
+
+And we’ll dream it possible
+有梦想，尽情追
+
+Until I’m breaking until I’m breaking
+不破不立，大破大立
+
+From the bottom to the top
+从谷底到巅峰
+
+We’re sparking wild fire’s
+我们是燎原的野火
+
+Never quit and never stop
+不退缩，不停步
+
+The rest of our lives
+不成不休
 ```
 
 # Why
