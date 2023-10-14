@@ -1,3 +1,7 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e0d8ced4-5000-4387-820a-7a55fc247d12)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f844745c-c8a5-49a4-a207-87b48571bdee)
+> 历史总是在重演...底层逻辑：个人技能（实战）、人脉关系（共赢）、价值利益（长期）
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cf25b0ca-e587-4a8d-9155-579e11887539)
 > 点亮个人/他人的瞬间，是爱和信任，让生活及世界变得更加美好...
 
@@ -172,5 +176,6 @@ The rest of our lives
 # Reference
 
 1. [李笑来作品集](http://lixiaolai.com/#/)
-2. [ithome](https://www.ithome.com/)
-3. [ifanr](https://www.ifanr.com/)
+2. [科技爱好者周刊](https://github.com/ruanyf/weekly)
+3. [ithome](https://www.ithome.com/)
+4. [ifanr](https://www.ifanr.com/)
