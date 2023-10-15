@@ -1,3 +1,11 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/bf0bf15e-2854-47f6-8a9e-ba0a44087c8c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/94ed72ea-2afe-4867-abaf-13bcbe84e0e9)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/09ba0d5d-519b-4c71-a621-c0d41be853bb)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a7604cbd-e444-48af-8319-79fbedfbef94)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8ae9acd3-1272-45aa-a12b-1a1f2a0f7db2)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b017c54-70af-4425-9a33-352a71637462)
+> 少有，正确及价值之旅...
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e0d8ced4-5000-4387-820a-7a55fc247d12)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f844745c-c8a5-49a4-a207-87b48571bdee)
 > 历史总是在重演...底层逻辑：个人技能（实战）、人脉关系（共赢）、价值利益（长期）
