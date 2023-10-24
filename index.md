@@ -1,3 +1,19 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f150a98b-5fb8-41be-84fb-dd186526ad07)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8cd68133-ebed-44e3-b8ff-381085a02c32)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/edb140b5-b293-4e44-9296-b83fafb159f5)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/84cb131e-5569-4de7-8aa7-3fcc215f78a6)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/664688ec-9ded-4b30-8825-68ab41caab2f)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/18c28218-6c07-4850-b048-5efed9e9a88c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/11c2be02-d363-4a35-8cfd-d9a203194828)
+> 深思熟虑，第一性原理，倾听沟通，协调整合，身先士卒，解决问题，创造价值...
+
+```
+了解-->理解-->信任-->支持-->授权-->共赢-->格局-->远见
+慢就是快，快就是慢
+少就是多，多就是少
+...
+```
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/bf0bf15e-2854-47f6-8a9e-ba0a44087c8c)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/94ed72ea-2afe-4867-abaf-13bcbe84e0e9)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/09ba0d5d-519b-4c71-a621-c0d41be853bb)
