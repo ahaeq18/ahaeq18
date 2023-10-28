@@ -1,3 +1,21 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d9b7b2d0-bdbe-4292-b2ec-bebd15a45931)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/5e30af72-1ffb-4705-92b6-916a2b401dcd)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8676cc58-cfa8-48af-919b-e130d6404580)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f4d7cdce-4855-46c2-a5f8-9526b45fc969)
+> 生活经历，实务经验，投资布局，从外到内，由己及人...
+
+```
+胸怀
+格局
+高度
+眼界
+谦卑
+节奏
+技能
+倾听
+...
+```
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f150a98b-5fb8-41be-84fb-dd186526ad07)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8cd68133-ebed-44e3-b8ff-381085a02c32)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/edb140b5-b293-4e44-9296-b83fafb159f5)
