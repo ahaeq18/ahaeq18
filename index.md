@@ -1,3 +1,14 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/bcc91fb8-929a-4fd6-81ea-3d446afdf2e9)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/80028d92-8b62-4446-8992-99bf06e7c959)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/590184f2-e28f-4a50-bac0-d2fd3a382946)
+> 少而精，内核，底层逻辑...
+
+```
+不买vs买
+奉献vs索取
+```
+
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d9b7b2d0-bdbe-4292-b2ec-bebd15a45931)
 > 卓有成效的管理者通过聚焦于贡献瞄准了“超越自己”这个目标。这要求管理者的注意力“从他自己的专业、他自己狭窄的技能、他自己的部门”，德鲁克写道，“转移到组织的整体绩效上”。
 
