@@ -1,4 +1,6 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d9b7b2d0-bdbe-4292-b2ec-bebd15a45931)
+> 卓有成效的管理者通过聚焦于贡献瞄准了“超越自己”这个目标。这要求管理者的注意力“从他自己的专业、他自己狭窄的技能、他自己的部门”，德鲁克写道，“转移到组织的整体绩效上”。
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/5e30af72-1ffb-4705-92b6-916a2b401dcd)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8676cc58-cfa8-48af-919b-e130d6404580)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f4d7cdce-4855-46c2-a5f8-9526b45fc969)
