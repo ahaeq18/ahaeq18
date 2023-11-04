@@ -1,6 +1,6 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/59f24943-4cac-423e-9f1d-98a5c37cfeb8)
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/29cea058-87fd-4c55-aad7-8d1b13cd7d76)
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3259daa9-970b-4dfe-8e37-d2f82dc15847)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a70a4066-63c7-4116-b36b-bbcaf943da83)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f87b6342-1105-4639-a23a-106083ad619e)
 > 少有，正确及价值之旅
 
 **想清楚，说明白，知道说什么、怎么说**
