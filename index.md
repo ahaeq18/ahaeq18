@@ -259,6 +259,10 @@ The rest of our lives
 6. 痛苦+反思+行动+坚持=成长
 7. 人只需，有且仅要，也只能为自己的选择负责；
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/2bae39c7-df18-4ab1-8ac9-c738ef2bbb74)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9ca68baf-10e2-4c0f-ad72-1374060a8eee)
+> [Sea Angel](https://movie.douban.com/subject/33387357/)
+
 # Reference
 
 1. [李笑来作品集](http://lixiaolai.com/#/)
