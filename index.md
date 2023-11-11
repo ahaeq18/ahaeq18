@@ -1,3 +1,6 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/93a45119-eccf-423e-b3d0-1d54bf1a84fa)
+> 天赋，努力及运气...
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/59f24943-4cac-423e-9f1d-98a5c37cfeb8)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a70a4066-63c7-4116-b36b-bbcaf943da83)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f87b6342-1105-4639-a23a-106083ad619e)
