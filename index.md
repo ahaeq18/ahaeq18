@@ -1,3 +1,7 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/18d1b2e6-d05b-4ada-ba39-cae28765a0f6)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/16ed0073-3902-4b40-9f27-0b7eb2b7041a)
+> 少，精，稳...
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/93a45119-eccf-423e-b3d0-1d54bf1a84fa)
 > 天赋，努力及运气...
 
