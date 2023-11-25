@@ -1,3 +1,8 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a88397c8-9a31-4fe7-8cd8-b9a2dbc1ad3b)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/52577e74-9d34-497b-9f37-52021bef5bff)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/735af2c7-e7a4-4cab-9314-5b2afc76781f)
+> 走起...
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/18d1b2e6-d05b-4ada-ba39-cae28765a0f6)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/16ed0073-3902-4b40-9f27-0b7eb2b7041a)
 > 少，精，稳...
