@@ -3,7 +3,7 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4a3ba019-2426-4426-9f71-564d238675d3)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1c7366ea-748a-473d-8220-d01184d5347a)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3998c5a8-a364-4cd1-b4f4-c6af6f4bd6e6)
-> 快走，读书，践行，复盘...关联方的想法，冰山模型...
+> 快走，读书，践行，复盘...关联方的想法，冰山模型...老树新芽，走新路，持续突破及创新，持续聚焦及闭环...
 
 ```
 第一，你的目标是什么？
