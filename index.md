@@ -1,3 +1,16 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/674cda32-9e92-4d7a-82df-bbe0b61bb0ae)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0bdb36a4-67e2-43a9-b75b-312fba988f7c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4a3ba019-2426-4426-9f71-564d238675d3)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1c7366ea-748a-473d-8220-d01184d5347a)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3998c5a8-a364-4cd1-b4f4-c6af6f4bd6e6)
+> 快走，读书，践行，复盘...关联方的想法，冰山模型...
+
+```
+第一，你的目标是什么？
+第二，你准备怎么干，来达成这个目标？
+第三，你需要我给你什么支持？
+```
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a88397c8-9a31-4fe7-8cd8-b9a2dbc1ad3b)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/52577e74-9d34-497b-9f37-52021bef5bff)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/735af2c7-e7a4-4cab-9314-5b2afc76781f)
