@@ -1,4 +1,11 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/674cda32-9e92-4d7a-82df-bbe0b61bb0ae)
+> 减负聚焦，科学筹划，沟通协作，轻装上阵，量变质变...
+
+`战略，战术，执行`
+`定位，节奏，分寸`
+`简洁，有效，价值`
+`理性，沉浸，当下`
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0bdb36a4-67e2-43a9-b75b-312fba988f7c)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4a3ba019-2426-4426-9f71-564d238675d3)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1c7366ea-748a-473d-8220-d01184d5347a)
