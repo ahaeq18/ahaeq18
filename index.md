@@ -1,10 +1,29 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/674cda32-9e92-4d7a-82df-bbe0b61bb0ae)
 > 减负聚焦，科学筹划，沟通协作，轻装上阵，量变质变...
 
+[上帝喜欢笨人](https://www.dedao.cn/course/article?id=5Mr9mzb36pP4JLEM5XkWqB2EYNegLD)
+
 `战略，战术，执行`
 `定位，节奏，分寸`
 `简洁，有效，价值`
 `理性，沉浸，当下`
+
+哈佛商学院教授迈克尔·波特在《竞争优势》这本书里提出了一个概念——[价值链分析](https://www.dedao.cn/course/article?id=a8QZdRM1OmLxVv0LpXG69rgYPjqWpy)。
+他认为公司经营的每一个环节，都是为了创造价值——这些环节叠加在最后的产品上，形成了整体的客户价值。组织可以从整体价值分拆出每个环节的价值，找到突破点，形成独特的竞争力。
+这里的独特的竞争力，就是稀缺性的体现。一个行业内，每个职场人都应该了解：
+
+```
+你所在的行业的核心价值是什么？
+你提供哪个环节的价值？
+做好这个价值链，需要你有什么能力？
+```
+
+从这个角度思考问题，职业定位会变得非常清晰——因为任务、职能、职位名称、平台，或者实现手段都会变，但是人性不变，需求也稳定。
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cb80d520-9e92-4a50-84de-18a83b8a492b)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/134b1feb-529e-4226-a689-f87578a92298)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d1917fff-8d99-4334-8adb-5aaab87ce592)
+> 加法，减法和计划
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0bdb36a4-67e2-43a9-b75b-312fba988f7c)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4a3ba019-2426-4426-9f71-564d238675d3)
