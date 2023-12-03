@@ -1,3 +1,17 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f1891820-e00e-4f1f-ade9-1cc23b159bf0)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d902b04f-b32a-46f4-853b-a3f2c62dad42)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d34bc7aa-6209-4ea5-94f1-8e70c6e5cbd4)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/5aad11a6-708f-44f3-9979-c14d90683fd1)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/7d52f791-b0e7-4af0-ad39-4f88229b3c11)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/87237506-321c-4473-99fa-86dd7d47d608)
+> 说走就走的旅行，生命是一首诗，一个人的精神湾区...
+
+```
+技术，情绪，物质/欲望
+主人/主动，奴隶/被动
+傲慢与偏见，自信与谦卑
+```
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/674cda32-9e92-4d7a-82df-bbe0b61bb0ae)
 > 减负聚焦，科学筹划，沟通协作，轻装上阵，量变质变...
 
