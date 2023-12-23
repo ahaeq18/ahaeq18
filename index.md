@@ -1,3 +1,31 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/111648d4-3af2-49d6-baa4-981dceb3a1f0)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b8ab4aa-ce74-4707-a468-3c7fc84bc2c5)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/77bcbd51-436c-4c42-964b-da0ed7ab0100)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/7c1fc654-70bf-4e40-b142-97ab5f0245e5)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/ba6c5466-8770-48e9-a358-1a6288b013d8)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/524169b0-afb8-4caf-8b1b-889706ad336b)
+> readme 自我解读，持续进化
+
+```
+井底之蛙
+盲人摸象
+
+我们以为自己是直接在看世界。实际上，我们永远是在通过大脑中一些预置的蓝图在看世界。
+不断地调整、重画自己头脑中的文化蓝图，从而让自己对于世界能够获得更深刻、更立体的理解。
+
+经济学家米尔顿·弗里德曼曾说过，如果要用一句话概括经济学，那就是“没有免费的午餐”。
+这里，要为午餐所付的那个“费”，就是机会成本。
+
+```
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d24118d2-321b-4fef-9c21-57a7a2dd5d24)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/471add72-0bcb-4f0c-add3-cdb0c7d2cf4c)
+> 试想一下，摆在你面前的没有这么多个点，而只有一个点的话，会出现什么情况？你可以在这个点上画出无数条线，对吧。这也就意味着，如果你手头只有一份材料，你可以基于它往任何方向写作。
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/56123049-7dd0-4ce4-80cf-b5572098f118)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4cae4378-7d4b-41ab-9dde-300c710544ea)
+> 按照受人工智能冲击大小排序，排在第一的是编程，ChatGPT冲击的相关性高达0.623，意思是，如果某个职业的编程技能重要性上升10%，那么受ChatGPT冲击的程度就会上升6.23%；其次是写作和阅读理解；最末尾的是科学思维，ChatGPT冲击的相关性是-0.23，也就是说，如果某个职业对科学思维的依赖度很高，那么受ChatGPT冲击程度反而会下降。
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9bc15eb0-428e-4ea9-b2bf-2b7bf8517c9f)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/505b3ed3-e929-4c63-b030-96ed77fdb9bb)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e5660ca9-200e-44ff-8d4a-7be29ac4e7fc)
