@@ -1,3 +1,17 @@
+```diff
++  理性，沉浸，当下⭐⭐⭐⭐⭐
++  健康，家人，成长⭐⭐⭐⭐⭐
++  沟通，协作，共赢⭐⭐⭐⭐⭐
++  事情，关系，利益⭐⭐⭐⭐⭐
++  平等，尊重，谦卑⭐⭐⭐⭐⭐
++  专业，靠谱，口碑⭐⭐⭐⭐⭐
++  策略，落实，价值⭐⭐⭐⭐⭐
+```
+
+# 目录 
+👉 [Life](#Life)  
+
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/111648d4-3af2-49d6-baa4-981dceb3a1f0)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b8ab4aa-ce74-4707-a468-3c7fc84bc2c5)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/77bcbd51-436c-4c42-964b-da0ed7ab0100)
@@ -368,3 +382,6 @@ The rest of our lives
 2. [科技爱好者周刊](https://github.com/ruanyf/weekly)
 3. [ithome](https://www.ithome.com/)
 4. [ifanr](https://www.ifanr.com/)
+5. [Github flavoured markdown](https://docs.github.com/en/get-started/writing-on-github)
+6. [Github markup engine](https://github.com/github/markup)
+7. [Emoji cheat sheet](https://www.webfx.com/tools/emoji-cheat-sheet/) 
