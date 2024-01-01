@@ -1,9 +1,14 @@
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
+
 ```RobotFramework
 2024 Go go go...
 天道酬勤
 人道酬善
 商道酬信
 ```
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/809e32fd-eea0-462c-8a24-8ebb557d8d1f)
+
 
 ```diff
 +  理性，沉浸，当下⭐⭐⭐⭐⭐
@@ -17,6 +22,7 @@
 - ChatGPT
 ```
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f89b0e2b-95de-4907-bafa-5291721647c6)
 
 
 # 目录 
