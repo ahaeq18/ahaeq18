@@ -1,3 +1,10 @@
+```RobotFramework
+2024 Go go go...
+天道酬勤
+人道酬善
+商道酬信
+```
+
 ```diff
 +  理性，沉浸，当下⭐⭐⭐⭐⭐
 +  健康，家人，成长⭐⭐⭐⭐⭐
@@ -6,11 +13,20 @@
 +  平等，尊重，谦卑⭐⭐⭐⭐⭐
 +  专业，靠谱，口碑⭐⭐⭐⭐⭐
 +  策略，落实，价值⭐⭐⭐⭐⭐
+
+- ChatGPT
 ```
+
+
 
 # 目录 
 👉 [Life](#Life)  
-
+👉 [Why](#Why)  
+👉 [What](#What)  
+👉 [How](#How)  
+👉 [Example](#Example)  
+👉 [Reference](#Reference)  
+👉 [HTML](#HTML)  
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/111648d4-3af2-49d6-baa4-981dceb3a1f0)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9b8ab4aa-ce74-4707-a468-3c7fc84bc2c5)
@@ -375,6 +391,44 @@ The rest of our lives
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/2bae39c7-df18-4ab1-8ac9-c738ef2bbb74)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9ca68baf-10e2-4c0f-ad72-1374060a8eee)
 > [Sea Angel](https://movie.douban.com/subject/33387357/)
+
+# HTML
+<samp>Monospaced text</samp>
+<ins>Underlined text</ins>
+<table><tr><td>Boxed text</td></tr></table>
+
+<details>
+<summary>Item summary with dropdown</summary>
+
+Dropdown content (supports **markdown** ~~yay!~~)
+
+```json
+{
+  awesome: "true"
+}
+```
+</details>
+
+<pre>
+&lt;details>
+&lt;summary>Item summary with dropdown&lt;/summary>
+
+Dropdown content (supports **markdown** ~~yay!~~)
+
+```json
+{
+  awesome: "true"
+}
+```
+&lt;/details>
+</pre>
+
+__*Italic-bold*__
+Superscript<sup>TM</sup>
+Superscript-italic<sup>*tm*</sup>
+Subscript<sub>x</sub>
+Subscript-bold<sub>**min**</sub>
+~~__*Italic-bold-strikethrough*__~~
 
 # Reference
 
