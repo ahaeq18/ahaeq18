@@ -2,13 +2,17 @@
 
 ```RobotFramework
 2024 Go go go...
-天道酬勤
-人道酬善
-商道酬信
+
+使命：创造和运用知识产权，助力企业经营及发展
+愿景：成为业界具有影响力的知识产权实务专家
+价值观：天道酬勤、人道酬善、商道酬信
+
 ```
 
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/809e32fd-eea0-462c-8a24-8ebb557d8d1f)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0955e13d-d661-4ef3-8ec1-5e63e04fbf2c)
+> [古今多少事，都付笑谈中。](https://www.historyline.online/)
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/809e32fd-eea0-462c-8a24-8ebb557d8d1f)
 
 ```diff
 +  理性，沉浸，当下⭐⭐⭐⭐⭐
@@ -18,11 +22,30 @@
 +  平等，尊重，谦卑⭐⭐⭐⭐⭐
 +  专业，靠谱，口碑⭐⭐⭐⭐⭐
 +  策略，落实，价值⭐⭐⭐⭐⭐
++  框架，规则，落实⭐⭐⭐⭐⭐
++  过去，现在，将来⭐⭐⭐⭐⭐
++  上山，下山，埋山⭐⭐⭐⭐⭐
++  框架，规则，落实⭐⭐⭐⭐⭐
+
++  ⭐⭐⭐大脑神经连接、肠道菌群、交感神经⭐⭐⭐
++  ⭐⭐⭐工作界面、沟通界面、交互界面⭐⭐⭐
++  ⭐⭐⭐工作技能、身体机能、人脉资源⭐⭐⭐
 
 - ChatGPT
 ```
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f89b0e2b-95de-4907-bafa-5291721647c6)
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0d5bbe6e-af3b-46f4-adb2-77689b52882d)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/bcdbc23d-24e3-4ed0-9318-cf75238eb54d)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cc70fd54-8727-47fe-af24-b6c97d61322c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/aa3ae238-e977-458f-91ee-a1b39b2fb7a4)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b7629a9c-e04e-471b-91db-35f69f9dda09)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/ea8b5bf9-ad8e-409c-a609-2bdef9814406)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/92b75632-71ac-46d7-93a8-597df9a51521)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/aa803c15-9e90-49cc-bfe3-bdd42470badc)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8f372eb5-65d2-449e-abc9-a7a622412204)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9a06e027-0420-42eb-b32c-0edd0870ac54)
 
 
 # 目录 
@@ -56,6 +79,8 @@
 
 经济学家米尔顿·弗里德曼曾说过，如果要用一句话概括经济学，那就是“没有免费的午餐”。
 这里，要为午餐所付的那个“费”，就是机会成本。
+
+自主神经，又称自律神经或植物神经，它主管胃肠蠕动、膀胱排尿、呼吸、心跳、血压，腺体分泌如排汗等生理活动，是维持基本生命活动的一组神经，由交感神经和副交感神经组成。交感神经能使人兴奋、活跃、心跳加速、呼吸加快，以保证人体在紧张状态时的生理需要。副交感神经系统可保持身体在安静状态下的生理平衡，其作用包括增进胃肠的活动，消化腺的分泌，促进大小便的排出，保持身体的能量，储蓄能源，使心跳放慢，血压降低，支气管缩小，以节省不必要的消耗，协助生殖活动，如使生殖血管扩张，性器官分泌液增加等。人体在正常情况下，功能相反的交感和副交感神经都会互相制约，使自主神经处于平衡的状态中。
 
 ```
 
