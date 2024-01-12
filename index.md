@@ -29,7 +29,6 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a9341cb0-ca4e-4966-a2d4-a16f5c4fe207)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9bb81470-9f8b-4c62-8556-fc2091d83611)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e09bebc0-c766-488f-9ae0-be4c94bcef86)
-![](https://github.com/ahaeq18/ahaeq18/assets/145888010/52e9beec-56ca-46e7-9f1a-80c65cb10523)
 > Reading Recovery Refresh 
 
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/809e32fd-eea0-462c-8a24-8ebb557d8d1f)
