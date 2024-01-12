@@ -41,8 +41,8 @@
 +  ⭐⭐⭐大脑神经连接、肠道菌群、交感神经⭐⭐⭐
 +  ⭐⭐⭐工作界面、沟通界面、交互界面⭐⭐⭐
 +  ⭐⭐⭐工作技能、身体机能、人脉资源⭐⭐⭐
-+  ⭐⭐⭐相信科学、尊重常识、底层逻辑⭐⭐⭐
-+  ⭐⭐⭐稀缺、价值交换、影响力⭐⭐⭐
++  ⭐⭐⭐相信科学、尊重常识、亲近自然⭐⭐⭐
++  ⭐⭐⭐底层逻辑、稀缺、价值交换、影响力⭐⭐⭐
 +  ⭐⭐⭐节奏感、松弛感、真实世界碰撞⭐⭐⭐
 
 +  ⭐⭐⭐井底蛙，笼中鸟，池中鱼，空中鸟⭐⭐⭐
@@ -64,6 +64,22 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8f372eb5-65d2-449e-abc9-a7a622412204)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9a06e027-0420-42eb-b32c-0edd0870ac54)
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/e4d23ccd-b992-4673-8275-6b03d545d33e)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/04ac272a-6e56-46cf-a462-e4ecbd77c71d)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d37c4d47-e2f3-4ad4-a962-740bc16126b9)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f3339729-dba3-4ad4-8c61-34d53f3ee70f)
+> 因人而异，量力而行，循序渐进，协作共赢，相互成就...
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/34754ee8-8297-4211-b4a8-72d91ccae7c5)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/ddca804d-1f2c-485b-910b-d8b32f6be2d6)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d3b8de15-17ed-49da-a198-a8bdd46a9db0)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3e6d64a0-d619-422d-a419-7215ca6d910c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/da16d6f0-c619-4a76-89e1-e35be8b99ed4)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/dab290d0-3bbb-4dd4-a19a-d29c1630279a)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8ab916d5-e716-46ae-9006-6f160d118f41)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/c0985e79-8f79-4177-90f5-348e5a2c17af)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8f44cd2d-0eb3-4cec-865a-ab672e74bb34)
+> [从事到人，从实到虚，从近到远，从令到辅](https://www.toutiao.com/video/7322362238344416575/)——[我们都是认知和习惯的囚徒](https://www.toutiao.com/article/6746579216537485828/)
 
 # 目录 
 👉 [Life](#Life)  
