@@ -1,6 +1,12 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。业务专家-->管理者-->好老师...
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f5b1354e-089e-4f86-b9a0-6199b9956aa0)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/dd124a10-497c-48cc-826e-de2de009a590)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/c9fc7cd9-2d83-49dc-9340-53ee55cc159a)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cb1dd187-823b-47b5-b9b4-5dd5938bded3)
+> 比天空或大海还辽阔的，是人的眼界与胸怀，每个人都是认知和习惯的囚徒...阅读/思考，旅行/践行，交友/交流...
+
 ```RobotFramework
 2024 Go go go...
 
