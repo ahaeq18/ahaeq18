@@ -1,6 +1,12 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0da623f4-54ba-4f03-930f-6c995ee3268c)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/608ea69b-3833-4b2f-b657-8be874a90117)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d7743257-fa2e-412f-abdf-0e45bfadab9d)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/6450f898-9165-40ec-89f9-d103e4db58fe)
+> 一年一城，奔赴山海...
+
 
 ```业务专家-->管理者-->好老师...
 1. 顺势而安，趁势而起，造势而雄，顺势而为...
