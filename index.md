@@ -1,6 +1,11 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d27c388e-06bb-45d2-8887-3e2e9934a5a8)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/bbd750be-6d31-4b07-9053-d925590b4ed3)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/a8243678-821b-4d0e-9a8f-303616ccd6f1)
+> No Emotion.Brains Only
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1d7f8414-f412-4697-b2ce-66a3badf7c75)
 > ChatGPT--马太效应放大器
 
