@@ -1,6 +1,16 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/52495565-350e-498f-8a62-6344cc511cf6)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0c30e517-5191-4f1c-8580-7f374168bb69)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4d85a251-441d-4a82-b8ab-04d1895dc9dd)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/290ad9d8-8209-4c6e-922d-08331d00e574)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b440a979-bfa5-4d7b-b282-b878ad9f0a42)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3a7af49f-05a3-4adb-b10f-5a3d7ab47be9)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9e6ad0f9-adef-452e-a864-abdd895f4253)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/7eb2a03f-60d3-4593-ae71-0837855a0625)
+> 阅读思考，旅行体验，交流分享...
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0ccdf0f0-8892-4104-a4f9-c4ffb1d475d6)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3f32c007-4021-44ad-875d-0cd6d36e6539)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f9e29248-ce04-435f-a361-6ce0bcaa5636)
