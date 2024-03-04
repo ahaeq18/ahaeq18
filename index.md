@@ -1,6 +1,12 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/5fe3fb3b-ae52-417b-b793-40e14e51a14a)
+> [2024-03-03：Los Angeles Lakers forward LeBron James becomes the first NBA player to reach 40,000 points in a career.](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/en/component/k2/1742914-20240303.htm)
+
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/11011501-8c8a-4fee-9949-1ee4d2e73a95)
+> 山水如画
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/52495565-350e-498f-8a62-6344cc511cf6)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0c30e517-5191-4f1c-8580-7f374168bb69)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/4d85a251-441d-4a82-b8ab-04d1895dc9dd)
