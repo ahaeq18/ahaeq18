@@ -1,6 +1,27 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/cbfd1b4f-2308-44e6-bc6a-1f92e16addbf)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/614e3af7-ceec-41cd-ac67-ecb0a85cf9df)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d9f8f6bf-5b3f-430d-ba3c-fe7466a984bf)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/c4d78abc-7cd1-4d81-ba61-a18905df3228)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1391a9c5-1028-4051-bc4b-9f8994a6cfe7)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/04f7160e-13ea-4ea1-b2b2-ee486e3043bc)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/1e7840dd-d672-445c-bf52-458a2bd5eb41)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/7632f096-f2c1-4a12-b23c-99780125c32a)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/91a1c5bc-15d0-41ee-a0cf-43d9fe15fff9)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/d18c5997-d4b4-4fde-8c95-e198baf70b9f)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/10839300-7bef-4c06-b3f0-0bf493be6a3e)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/6b9eef82-cb23-4c43-bfb3-db19c0ca0cee)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/301f2fa2-2d53-4ec6-b3fd-898b5a2ff7b7)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/8612b3d9-3e14-4524-b305-6a208ccc45a1)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/feb51529-1053-4eb3-b475-3e4eee7b0c51)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/7d9737a5-4212-47bc-a436-6ff1d767b369)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b7c55b2f-a467-4ede-90e0-04ce0fdd07b4)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b13d5045-a7ec-4f8f-94eb-e848afd34752)
+> aha，还能这么干，原来如此，不过如此，一切都会过去，一切也会来到...
+
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/5fe3fb3b-ae52-417b-b793-40e14e51a14a)
 > [2024-03-03：Los Angeles Lakers forward LeBron James becomes the first NBA player to reach 40,000 points in a career.](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/en/component/k2/1742914-20240303.htm)
 
