@@ -8,6 +8,9 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/316305ac-8750-43d3-93aa-8ddb702b3fae)
 > [秘塔A搜索](https://metaso.cn/)...
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/3f1d0c55-a202-444e-a981-08107a863681)
+> [perplexity](https://www.perplexity.ai/)
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/6ede398e-299d-48f4-a78f-a803bfeed147)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/0b7e7392-7e0e-4a58-87ef-b18eac394799)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/97daf512-be76-4e1b-8e71-858362aff5d8)
