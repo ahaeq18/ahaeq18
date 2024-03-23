@@ -1,6 +1,10 @@
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/f0a30840-9602-45c7-9e3b-6259e67a372f)
 > 改变是不断向内探索的过程，把它看成一种尝试，去触碰自我的边界，以确认它的形状。就像一个雕塑家，对着一块石头叮叮当当地挖凿，挖掉的部分越来越精细，剩下的部分也变得越来越清晰。最终，我们会从石头里“挖”出一尊雕像来。那就是[自我的形状](https://www.dedao.cn/course/detail?id=nb9L2q1e3OxKBPNsj8JrgN8P0Rwo6B)。
 
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/b8c279d9-27af-4425-bb44-a6ae36e0708a)
+![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9a638881-75fc-483a-a850-0c9b2d1e805e)
+> 人类每次正视自己的渺小，都是自身的一次巨大进步
+
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/31a65705-0e04-4fd5-bee4-eab0b57dd96d)
 ![](https://github.com/ahaeq18/ahaeq18/assets/145888010/9cc00c30-106d-4bfe-b7f3-b02b7e8db9e5)
 > 生活如戏，入戏及退场...
